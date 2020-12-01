@@ -1,2 +1,2 @@
 # readaily-
-deocks loves me
+joo loves deocks
