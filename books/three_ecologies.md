@@ -1,4 +1,4 @@
-# Three Ecologies by Deleuze and Gattari
+# Affect Theory 개괄 
+## 2020.12.02. (Wed)
 
-## pages
-2020-12-2 p100-102
+### Wikipedia, Prof. Minjung Kim's 2020-2 syllabus 
