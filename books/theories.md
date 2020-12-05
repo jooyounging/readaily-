@@ -6,3 +6,5 @@
 ## 2020.12.03. (Thu)
 ### [퍼포먼스인문학] M. Butterfly 영화 보고 토론 글 읽
 그 외 퍼포먼스인문학 엑셀 통합본 만듦
+## 2020.12.04. (Fri)
+### week 14 readings - Buell, Ecocriticism: The Emerging Trends & Kershaw, Theater Ecology
