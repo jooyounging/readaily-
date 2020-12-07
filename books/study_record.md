@@ -13,3 +13,5 @@
 ## 20.12.06. (Sun)
 ### Arons, Queer Ecology and Contemporary Plays-Bears and My Barking Dog
 ### Chaudhuri - Zooesis and Performance 
+## 20.12.07. (Mon)
+### Chaudhuri - Zooesis and Performance, Ch.1 (De)facing the Animals
