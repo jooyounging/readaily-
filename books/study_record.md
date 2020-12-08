@@ -15,3 +15,4 @@
 ### Chaudhuri - Zooesis and Performance 
 ## 20.12.07. (Mon)
 ### Chaudhuri - Zooesis and Performance, Ch.1 (De)facing the Animals
+amehdi serting
