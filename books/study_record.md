@@ -21,3 +21,5 @@ Amehdi, "Setting ~ Far Away"
 <펠릭스 가타리의 생태철학> (신승철), many articles related to Churchill's Far Away 
 ## 20.12.10. (Thu)
 Carla and Lewis 논문 심사내용 반영
+## 20.12.11. (Fri)
+논문 작성. 차근차근. 할 수 있다. 
