@@ -23,3 +23,5 @@ Amehdi, "Setting ~ Far Away"
 Carla and Lewis 논문 심사내용 반영
 ## 20.12.11. (Fri)
 논문 작성. 차근차근. 할 수 있다. 
+## 20.12.12. (Sat)
+논문.
