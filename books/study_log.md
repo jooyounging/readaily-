@@ -1,8 +1,7 @@
-# Affect Theory 개괄 
-## 20.12.02. (Wed)
-### Wikipedia, Prof. Minjung Kim's 2020-2 syllabus 
+# "아주 작은 일을 오랜 시간에 걸쳐 매일 하는 것. 큰 목표를 이루는 방법으로 그보다 좋은 방법을 나는 아직 발견하지 못했다."
 
-# Drama
+## 20.12.02. (Wed)
+### Affect Thoery 개괄 - Wikipedia, Prof. Minjung Kim's 2020-2 syllabus 
 ## 20.12.03. (Thu)
 [퍼포먼스인문학] M. Butterfly 영화 보고 토론 글 읽
 그 외 퍼포먼스인문학 엑셀 통합본 만듦
@@ -27,3 +26,9 @@ Carla and Lewis 논문 심사내용 반영
 논문.
 ## 20.12.13~16 
 논문. 불태움!
+## ~20.12.22. 
+논문 마무리. 최종수정본 인쇄소 보냄.
+## 20.12.23. 
+좀 쉬고, 행정일 처리, 연극인의밤, 결과보고서, affect theory & cultural studies syllabus 살펴봄
+## 20.12.24.
+가타리 <세 가지 생태학> ~p.38, 과외 교재 사러 교보문고, 영어 공부(특히 영작, 영단어) 의지활활!
