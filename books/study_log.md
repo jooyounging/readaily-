@@ -33,3 +33,5 @@ Carla and Lewis 논문 심사내용 반영
 ## 20.12.24.
 가타리 <세 가지 생태학> ~p.38, 과외 교재 사러 교보문고, 영어 공부(특히 영작, 영단어) 의지활활!
 1) 절대적인 양(이 질로 바뀌는 순간) 2) 매일 아침, Writing log(be very specific) 3) 영작 -> 회화, 독해에도 도움 4) 영어를 잘한다는 건 라이팅을 잘한다는 것 5) 필사? 문장 암기?
+## 20.12.25.
+3분 영어뉴스 듣기, voracious/steeped/eminent/indiscriminate/replete, animal acts 
