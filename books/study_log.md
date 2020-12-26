@@ -35,3 +35,7 @@ Carla and Lewis 논문 심사내용 반영
 1) 절대적인 양(이 질로 바뀌는 순간) 2) 매일 아침, Writing log(be very specific) 3) 영작 -> 회화, 독해에도 도움 4) 영어를 잘한다는 건 라이팅을 잘한다는 것 5) 필사? 문장 암기?
 ## 20.12.25.
 3분 영어뉴스 듣기, voracious/steeped/eminent/indiscriminate/replete, animal acts 
+## 20.12.26.
+전범선, 풀무질, 두루미, 책 탐방, 클래식 <난처한 클래식>
+Chaudhuri - (De)facing, Animal Geographies 
+day2 - prognosticate, automaton, matron, abound (with)
