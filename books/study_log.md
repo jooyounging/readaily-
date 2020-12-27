@@ -39,3 +39,6 @@ Carla and Lewis 논문 심사내용 반영
 전범선, 풀무질, 두루미, 책 탐방, 클래식 <난처한 클래식>
 Chaudhuri - (De)facing, Animal Geographies 
 day2 - prognosticate, automaton, matron, abound (with)
+## 20.12.27. 
+finished reading Animal Geographies. so interesting! *Zooesis* animal - human culture
+day3 - tinge, compound, realm, paradox, annals 
