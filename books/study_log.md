@@ -42,3 +42,7 @@ day2 - prognosticate, automaton, matron, abound (with)
 ## 20.12.27. 
 finished reading Animal Geographies. so interesting! *Zooesis* animal - human culture
 day3 - tinge, compound, realm, paradox, annals 
+## 20.12.28.
+학교 가서 잡지 배부, 도서관 가서 책 대출(설레!), 제로비건(불맛 버섯!), 그리고 토함...ㅠㅠ
+The Animal Reader 인트로들 읽고, 논문 수정사항 정리+reread
+day4 - implore, drudgery, perceive, interminable, badger 
