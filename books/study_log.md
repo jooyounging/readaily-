@@ -44,5 +44,8 @@ finished reading Animal Geographies. so interesting! *Zooesis* animal - human cu
 day3 - tinge, compound, realm, paradox, annals 
 ## 20.12.28.
 학교 가서 잡지 배부, 도서관 가서 책 대출(설레!), 제로비건(불맛 버섯!), 그리고 토함...ㅠㅠ
-The Animal Reader 인트로들 읽고, 논문 수정사항 정리+reread
+The Animals Reader 인트로들 읽고, 논문 수정사항 정리+reread
 day4 - implore, drudgery, perceive, interminable, badger 
+## 20.12.29.
+8시 기상, 논문 최종 수정본 보냄, 떡만두국, The Animals Reader Intro들 마저 다 읽고, 과외, 방이식당, 단어 테스트(day5, the end of week 1)
+## 20.12.30.
