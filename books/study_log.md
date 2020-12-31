@@ -49,4 +49,6 @@ day4 - implore, drudgery, perceive, interminable, badger
 ## 20.12.29.
 8시 기상, 논문 최종 수정본 보냄, 떡만두국, The Animals Reader Intro들 마저 다 읽고, 과외, 방이식당, 단어 테스트(day5, the end of week 1)
 ## 20.12.30.
-ㄱㄹ언니 희소식! 연극 FAN, 장혜영 2020 국정보고서
+ㄱㄹ언니 희소식! 연극 FAN, 장혜영 2020 국정보고서(ㅠㅠ)
+## 20.12.31.
+Kershaw Theatre Ecology 수업노트
