@@ -52,3 +52,7 @@ day4 - implore, drudgery, perceive, interminable, badger
 ㄱㄹ언니 희소식! 연극 FAN, 장혜영 2020 국정보고서(ㅠㅠ)
 ## 20.12.31.
 Kershaw Theatre Ecology 수업노트
+## 21.01.01.
+Kershaw, Buell(Emerging Trends), 수업노트 복습, 베어에 아카디아와 연결점 노트
+영어공부 구문, 추후에 as 더 공부하기 
+덕수님이 아팠다 ㅠㅠ 간호.. 
