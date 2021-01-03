@@ -56,4 +56,9 @@ Kershaw Theatre Ecology 수업노트
 Kershaw, Buell(Emerging Trends), 수업노트 복습, 베어에 아카디아와 연결점 노트
 영어공부 구문, 추후에 as 더 공부하기 
 덕수님이 아팠다 ㅠㅠ 간호...
-laconic, throng, reticent, intrepid, accost 
+week 2 day1 - laconic, throng, reticent, intrepid, accost 
+## 21.01.02.
+week2 day2 - furtive, felon, irate, plethora, hapless
+## 21.01.03.
+스캔
+vigilant, gesticulate, fabricate, adroit, pretext 
