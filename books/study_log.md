@@ -60,5 +60,5 @@ week 2 day1 - laconic, throng, reticent, intrepid, accost
 ## 21.01.02.
 week2 day2 - furtive, felon, irate, plethora, hapless
 ## 21.01.03.
-스캔
+스캔, little women 
 vigilant, gesticulate, fabricate, adroit, pretext 
