@@ -34,18 +34,19 @@ Carla and Lewis 논문 심사내용 반영
 가타리 <세 가지 생태학> ~p.38, 과외 교재 사러 교보문고, 영어 공부(특히 영작, 영단어) 의지활활!
 1) 절대적인 양(이 질로 바뀌는 순간) 2) 매일 아침, Writing log(be very specific) 3) 영작 -> 회화, 독해에도 도움 4) 영어를 잘한다는 건 라이팅을 잘한다는 것 5) 필사? 문장 암기?
 ## 20.12.25.
-3분 영어뉴스 듣기, voracious/steeped/eminent/indiscriminate/replete, animal acts 
+3분 영어뉴스 듣기, voracious/steeped/eminent/indiscriminate/replete, to eat humble pie
+animal acts 
 ## 20.12.26.
 전범선, 풀무질, 두루미, 책 탐방, 클래식 <난처한 클래식>
 Chaudhuri - (De)facing, Animal Geographies 
-day2 - prognosticate, automaton, matron, abound (with)
+day2 - prognosticate, automaton, matron, abound (with), a pig in a poke
 ## 20.12.27. 
 finished reading Animal Geographies. so interesting! *Zooesis* animal - human culture
-day3 - tinge, compound, realm, paradox, annals 
+day3 - tinge, compound, realm, paradox, annals, a flash in the pan
 ## 20.12.28.
 학교 가서 잡지 배부, 도서관 가서 책 대출(설레!), 제로비건(불맛 버섯!), 그리고 토함...ㅠㅠ
 The Animals Reader 인트로들 읽고, 논문 수정사항 정리+reread
-day4 - implore, drudgery, perceive, interminable, badger 
+day4 - implore, drudgery, perceive, interminable, badger, to pour oil on troubled waters
 ## 20.12.29.
 8시 기상, 논문 최종 수정본 보냄, 떡만두국, The Animals Reader Intro들 마저 다 읽고, 과외, 방이식당, 단어 테스트(day5, the end of week 1)
 ## 20.12.30.
@@ -56,9 +57,14 @@ Kershaw Theatre Ecology 수업노트
 Kershaw, Buell(Emerging Trends), 수업노트 복습, 베어에 아카디아와 연결점 노트
 영어공부 구문, 추후에 as 더 공부하기 
 덕수님이 아팠다 ㅠㅠ 간호...
-week 2 day1 - laconic, throng, reticent, intrepid, accost 
+week 2 day1 - laconic, throng, reticent, intrepid, accost, the sword of Damocles
 ## 21.01.02.
-week2 day2 - furtive, felon, irate, plethora, hapless
+week2 day2 - furtive, felon, irate, plethora, hapless, Pyrrhic victory
 ## 21.01.03.
 스캔, little women 
-vigilant, gesticulate, fabricate, adroit, pretext 
+vigilant, gesticulate, fabricate, adroit, pretext, a wet blanket 
+## 21.01.04
+벌새, 설국열차, 엠마
+## 21.01.05.
+살인의 추억
+nuance, rudimentary, avid, enhance, cajole, to beard the line in his den 
