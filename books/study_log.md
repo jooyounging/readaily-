@@ -50,21 +50,28 @@ day4 - implore, drudgery, perceive, interminable, badger, to pour oil on trouble
 ## 20.12.29.
 8시 기상, 논문 최종 수정본 보냄, 떡만두국, The Animals Reader Intro들 마저 다 읽고, 과외, 방이식당, 단어 테스트(day5, the end of week 1)
 ## 20.12.30.
-ㄱㄹ언니 희소식! 연극 FAN, 장혜영 2020 국정보고서(ㅠㅠ)
+GR good news, FAN, 장혜영 2020 국정보고서
 ## 20.12.31.
 Kershaw Theatre Ecology 수업노트
 ## 21.01.01.
 Kershaw, Buell(Emerging Trends), 수업노트 복습, 베어에 아카디아와 연결점 노트
 영어공부 구문, 추후에 as 더 공부하기 
-덕수님이 아팠다 ㅠㅠ 간호...
+d sick
 week 2 day1 - laconic, throng, reticent, intrepid, accost, the sword of Damocles
 ## 21.01.02.
 week2 day2 - furtive, felon, irate, plethora, hapless, Pyrrhic victory
 ## 21.01.03.
-스캔, little women 
+scan, little women 
 vigilant, gesticulate, fabricate, adroit, pretext, a wet blanket 
 ## 21.01.04
-벌새, 설국열차, 엠마
+m(3)
 ## 21.01.05.
-살인의 추억
+m(1)
 nuance, rudimentary, avid, enhance, cajole, to beard the line in his den 
+## 21.01.06.
+f(1)
+## 21.01.07.
+m(1)
+2nd week review
+adroit(clever, 능숙한), cajole(coax, wheedle, 감언이설로 속이다), furtive(sly, 은밀한), avid(passionate, enthusiastic, 열렬한), vigilant(watchful, 방심하지 않는)
+## 21.01.08.
