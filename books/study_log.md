@@ -75,3 +75,7 @@ m(1)
 2nd week review
 adroit(clever, 능숙한), cajole(coax, wheedle, 감언이설로 속이다), furtive(sly, 은밀한), avid(passionate, enthusiastic, 열렬한), vigilant(watchful, 방심하지 않는)
 ## 21.01.08.
+back to the pace!!
+3rd week day1 - caustic(sarcastic, biting신랄한), reprimand, loathe, lackluster(dull), wrest(take by force), crocodile tears(insincere tears)
+## 21.01.09.
+day2 - infamous, inadvertently(heedless, not attentive, 부주의한, 우연히), dupe(a person easily being tricked, 잘 속는 사람), incipient(초기의), jostle(to shove hard, 세게 밀다, 다투다)
