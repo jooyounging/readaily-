@@ -79,3 +79,6 @@ back to the pace!!
 3rd week day1 - caustic(sarcastic, biting신랄한), reprimand, loathe, lackluster(dull), wrest(take by force), crocodile tears(insincere tears)
 ## 21.01.09.
 day2 - infamous, inadvertently(heedless, not attentive, 부주의한, 우연히), dupe(a person easily being tricked, 잘 속는 사람), incipient(초기의), jostle(to shove hard, 세게 밀다, 다투다)
+## 21.01.10
+style vegan! :) 
+day3 - tremulous(quivering), repudiate(reject), cessation(stop), ominous(threatening), bristle(stiffen with fear or anger), Skid Row(disreputable part of town)
