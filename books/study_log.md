@@ -82,3 +82,7 @@ day2 - infamous, inadvertently(heedless, not attentive, 부주의한, 우연히)
 ## 21.01.10
 style vegan! :) 
 day3 - tremulous(quivering), repudiate(reject), cessation(stop), ominous(threatening), bristle(stiffen with fear or anger), Skid Row(disreputable part of town)
+## 21.01.11
+finally got back in track ! ! 
+A Philosophy of Gardens Ch.1 
+day4 - condolence, incongruous, euphemism, stipulate, mundane, to go up in smoke
