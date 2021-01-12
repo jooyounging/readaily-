@@ -79,10 +79,14 @@ back to the pace!!
 3rd week day1 - caustic(sarcastic, biting신랄한), reprimand, loathe, lackluster(dull), wrest(take by force), crocodile tears(insincere tears)
 ## 21.01.09.
 day2 - infamous, inadvertently(heedless, not attentive, 부주의한, 우연히), dupe(a person easily being tricked, 잘 속는 사람), incipient(초기의), jostle(to shove hard, 세게 밀다, 다투다)
-## 21.01.10
+## 21.01.10.
 style vegan! :) 
 day3 - tremulous(quivering), repudiate(reject), cessation(stop), ominous(threatening), bristle(stiffen with fear or anger), Skid Row(disreputable part of town)
-## 21.01.11
+## 21.01.11.
 finally got back in track ! ! 
 A Philosophy of Gardens Ch.1 
 day4 - condolence, incongruous, euphemism, stipulate, mundane, to go up in smoke
+편지.
+## 21.01.12.
+day5 review - bristle(곤두서다), caustic(신랄한, stinging), incongruous(일관되지 않은, inconsistent), wrest(seize), jostle(to push), incipient(starting), lackluster(lacking brightness, 흐리멍텅한), ominous(menacing 불길한 위협적인), tremulous(trembling), stipulate(규명하다 make a specific demand)
+A Philosophy of Gardens Ch.2-3
