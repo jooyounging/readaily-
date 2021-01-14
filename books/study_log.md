@@ -90,3 +90,7 @@ day4 - condolence, incongruous, euphemism, stipulate, mundane, to go up in smoke
 ## 21.01.12.
 day5 review - bristle(곤두서다), caustic(신랄한, stinging), incongruous(일관되지 않은, inconsistent), wrest(seize), jostle(to push), incipient(starting), lackluster(lacking brightness, 흐리멍텅한), ominous(menacing 불길한 위협적인), tremulous(trembling), stipulate(규명하다 make a specific demand)
 A Philosophy of Gardens Ch.2-3
+## 21.01.13. 
+투선쌤, 피부과, 도서관, 어딘 정리
+## 21.01.14.
+ㅇㄴㅇㄴ콜, 신촌극장 디퓨전, 어딘 정리
