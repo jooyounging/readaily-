@@ -94,3 +94,7 @@ A Philosophy of Gardens Ch.2-3
 투선쌤, 피부과, 도서관, 어딘 정리
 ## 21.01.14.
 ㅇㄴㅇㄴ콜, 신촌극장 디퓨전, 어딘 정리
+## 21.01.15. 
+A Philosophy of Gardens Ch.4, Foucault 특강 
+## 21.01.16.
+4th week day 1, 2
