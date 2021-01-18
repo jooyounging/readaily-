@@ -98,3 +98,8 @@ A Philosophy of Gardens Ch.2-3
 A Philosophy of Gardens Ch.4, Foucault 특강 
 ## 21.01.16.
 4th week day 1, 2
+## 21.01.17.
+과외, A Philosophy of Gardens Ch.5
+## 21.01.18.
+A Philosophy of Gardens finished!, Edward Ralph 장소와장소상실, 
+4th weeek day3 - castigate, tangible, octogenerian, sordid, laceration 
