@@ -103,3 +103,6 @@ A Philosophy of Gardens Ch.4, Foucault 특강
 ## 21.01.18.
 A Philosophy of Gardens finished!, Edward Ralph 장소와장소상실, 
 4th weeek day3 - castigate, tangible, octogenerian, sordid, laceration 
+## 21.01.19.
+어딘 토지 / 생명다양성재단, 이동시 / ㅈㅅ언니 통화 / 올해 플랜, 이화연극 미래 
+내일은 아침에 레퍼런스 정리, 학교, A Philosophy of Gardens 정리, ㅈㅇ 드라마터지
