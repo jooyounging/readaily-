@@ -106,3 +106,7 @@ A Philosophy of Gardens finished!, Edward Ralph 장소와장소상실,
 ## 21.01.19.
 어딘 토지 / 생명다양성재단, 이동시 / ㅈㅅ언니 통화 / 올해 플랜, 이화연극 미래 
 내일은 아침에 레퍼런스 정리, 학교, A Philosophy of Gardens 정리, ㅈㅇ 드라마터지
+## 21.01.20.
+첫 커넥트, 도서관, 전기가오리
+## 21.01.21.
+전기가오리 아렌트, week4 review 
