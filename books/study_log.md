@@ -110,3 +110,5 @@ A Philosophy of Gardens finished!, Edward Ralph 장소와장소상실,
 첫 커넥트, 도서관, 전기가오리
 ## 21.01.21.
 전기가오리 아렌트, week4 review 
+## 21.01.22. 
+biopolitics 강의3, 인류세 에코페미니즘 토착, ㄱ언니에게 내 원대한 꿈!, 마음가짐. 
